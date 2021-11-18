@@ -32,6 +32,9 @@ Witch est un musique sortie en 2014, le clip l'a met en scène dans ce qu'il sem
 
 Ce clip utilise diffférents procédés technique tel que la mise en abyme, c'est à dire représenter une oeuvre dans une oeuvre similaire, comme deux miroirs mis l'un en face de l'autre.
 
+![maxresdefault](https://user-images.githubusercontent.com/93718385/142371824-6d555866-9d8a-4d04-9478-a4f2974b2b36.jpeg)
+
+
 Dans ce clip, Klein utilise la mise en abyme deux fois.
 
 * La première utilisation de la mise en abyme se fait grâce à la vidéo projetée sur la télévision, on peut y apercevoir Klein 
