@@ -16,7 +16,6 @@ Sa musique est décrite comme expérimental, mélangeant collage d'audio éléct
 
 Une grande partie de ses créations sont réalisées grâce au logiciel d'enregisstrement de son numériques __Audacity__
 
-![Image text](https://f4.bcbits.com/img/0025776906_10.jpg) 
 
 ![Klein_Lifetime](https://user-images.githubusercontent.com/93718385/142369680-54b02d91-3b94-45a9-aa9b-2a1fc4d0f190.jpeg)
 
